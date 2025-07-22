@@ -46,4 +46,4 @@ We may update this policy as needed. Changes will be posted on this page and wil
 
 If you have any questions or concerns about this Privacy Policy, please contact us:
 
-**Email:** [](mailto:)
+**Email:** [motifzmd@gmail.com](mailto:motifzmd@gmail.com)
